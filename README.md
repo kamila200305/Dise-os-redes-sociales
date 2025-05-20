@@ -1,2 +1,3 @@
-# Dise-os-redes-sociales
-Aquí están algunos pequeños diseño que he creado 
+# Diseños-redes-sociales
+Posts 
+Kamila Hidalgo 
